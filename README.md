@@ -1,1 +1,1 @@
-github เก่ง เองนะ ให้น้อง AI ช่วยทำ
+github BY KENG & AI
